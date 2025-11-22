@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @Taiklin
 - 👀 I’m interested in gaming GAMING MORE GAMING!!
 - 🌱 I’m currently learning scripting
-- 💞️ I’m looking to collaborate on idk (Might be changed later)
 - 📫 How to reach me Send me a DM on discord my user is wicked.taik
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I am straight
 
 <!---
 Taiklin/Taik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
